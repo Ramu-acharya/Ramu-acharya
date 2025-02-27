@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Ramu Acharya Co-Founder of Evon-electric
+# 👋 Hi, I'm Ramu Acharya | Co-Founder of Evon-electric
 
 🔧 **Electronics Engineer | Firmware Developer | PCB Designer**  
 
